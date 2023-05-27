@@ -15,3 +15,8 @@ This is the recipe for Japanese Milk Bread that I found
  https://www.reddit.com/r/recipes/comments/gdpalr/the_perfect_fluffy_milk_bread/?utm_source=share&utm_medium=web2x&context=3
 
  i love milk bread!!
+
+-------------------------------
+ CHicken Shawarma recipe:
+ https://www.reddit.com/r/Cooking/comments/jbrth8/the_homemade_chicken_shawarma_manual_a_guide_to/
+Keeping it halal :sunglasses:
