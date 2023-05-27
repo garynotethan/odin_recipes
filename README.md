@@ -6,7 +6,8 @@ I am learning how to use git and html by creating a very basic recipe website.
 After completing this project, I will learn:
  - basic HTML skills
  - basic git skills
- - how to make various breads.
+ - how to make milk bread
+ - how to make homemade chicken shawarma
 
 
 This is the recipe for Japanese Milk Bread that I found
